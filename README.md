@@ -5,3 +5,5 @@ Not rlly a dni bc they don't exactly work ngl. but i WILL block you if you're: H
 prob not verbal most of the time, so I apologize if I don't talk or I just respond with nods or emojis, i'm legit just too mentally tired most of the time.
 
 I'm also not ontab most of the time either, I'm probably writing, playing games or just simply. not at my computer. but please feel free to drop a whisper to try and grab my attention ^^
+
+my main selfships are William Afton, Goob, Steven Universe, Rosemary Walten, HER (IMSCARED). i used to care abt "doubles" but im trying to expose myself to care less bc I know its unhealthy jhdj.
