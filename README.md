@@ -1,9 +1,7 @@
 work on this later <3 basically im 18, a darkshipper/proshipper + anti harassment altogether.
 
-Not rlly a dni bc they don't exactly work ngl. but i WILL block you if you're: Homophobic, Racist, Transphobic, Pro Contact, Bad Faith, You dehumanize others, You use the wrong pronouns on purpose.
-
-prob not verbal most of the time, so I apologize if I don't talk or I just respond with nods or emojis, i'm legit just too mentally tired most of the time.
-
-I'm also not ontab most of the time either, I'm probably writing, playing games or just simply. not at my computer. but please feel free to drop a whisper to try and grab my attention ^^
+Not rlly a dni bc they don't exactly work ngl. but i WILL block you if you're: Homophobic, Racist, Transphobic, Pro Contact, Radqueer, Bad Faith, You dehumanize others, You use the wrong pronouns on purpose, and just rude in general.
 
 my main selfships are William Afton, Goob, Steven Universe, Rosemary Walten, HER (IMSCARED). i used to care abt "doubles" but im trying to expose myself to care less bc I know its unhealthy jhdj.
+
+My main is [@Michael-Afton1983](https://github.com/Michael-Afton1983) I don't wanna link my alt on that account bc it's for the safe server ^^ i DO NOT want -18 on this account AT ALLL.
