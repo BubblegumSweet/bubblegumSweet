@@ -1,4 +1,4 @@
-work on this later <3 basically im 18, a darkshipper/proshipper + anti harassment altogether.
+work on this later <3 basically im 18, a darkshipper/proshipper + anti harassment altogether. They/Them for me, please <3
 
 Not rlly a dni bc they don't exactly work ngl. but i WILL block you if you're: Homophobic, Racist, Transphobic, Pro Contact, Radqueer, Bad Faith, You dehumanize others, You use the wrong pronouns on purpose, and just rude in general.
 
