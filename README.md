@@ -34,6 +34,8 @@ heavy wip rn !!
 <br>Sprout Seedly x Cosmo
 <br>Ginger x Goob
 <br>
+<br>Phantasia Wishling x Copper Wishling
+<br>
 <br>Jimmy x Curly 	
 <br>Jimmy x Daisuke
 <br>
